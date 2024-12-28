@@ -1,4 +1,4 @@
-Traversal GitHub Organization Rules
+Traversal GitHub Organization Rules:-
 Respect and Collaboration
 Always be respectful and supportive of others. Collaboration is key – help out fellow members when needed and engage positively.
 
